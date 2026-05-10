@@ -11,4 +11,35 @@
   
 
 
-hello this is a huge wip umm 
+
+‎
+
+hun𝙩𝙚r 
+𝙤𝙧
+𝙘iel
+ㅤ 
+𝟏
+5
+
+
+
+
+‎ ‎ ‎
+
+
+
+
+
+
+
+
+
+  
+
+
+
+
+
+
+<div align="center">
+
