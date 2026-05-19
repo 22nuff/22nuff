@@ -18,7 +18,7 @@
 
 
 ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ[ata](https://maliciouswhiteboy.atabook.org/) ㅤㅤ﹒ㅤㅤ[strawpage](https://pawsatyouandwagsmytail.straw.page)ㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤ[ata](https://maliciouswhiteboy.atabook.org/) ㅤㅤ﹒ㅤㅤ[strawpage](https://gayballsinmymouth.straw.page)
 ㅤ
 ㅤ 
 
