@@ -13,13 +13,11 @@
 
 
 ‎
-${\textsf{\color{#ecd9cc}привет go sign my stuff yo!!!!!!!!!}}$
+${\textsf{\color{#ecd9cc}go sign my stuff yo!!!!!!!!!}}$
 
 
-
-<div align="center">
 ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ[ata](https://maliciouswhiteboy.atabook.org/) ㅤㅤ﹒ㅤㅤ[strawpage](https://youregoingdowngoodfriend.straw.page)
+ㅤㅤ[ata](https://maliciouswhiteboy.atabook.org/) ㅤㅤ﹒ㅤㅤ[strawpage](https://youregoingdowngoodfriend.straw.page)
 ㅤ
 ㅤ 
 
