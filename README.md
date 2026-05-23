@@ -13,12 +13,12 @@
 
 
 ‎
-${\textsf{\color{#e88b1d}привет подпиши мои вещи сейчас иди сделай это сейчас! сейчас!}}$
+${\textsf{\color{#ecd9cc}привет go sign my stuff yo!!!!!!!!!}}$
 
 
 
 ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ[ata](https://maliciouswhiteboy.atabook.org/) ㅤㅤ﹒ㅤㅤ[strawpage](https://gayballsinmymouth.straw.page)
+ㅤㅤㅤㅤㅤ[ata](https://maliciouswhiteboy.atabook.org/) ㅤㅤ﹒ㅤㅤ[strawpage](https://youregoingdowngoodfriend.straw.page)
 ㅤ
 ㅤ 
 
