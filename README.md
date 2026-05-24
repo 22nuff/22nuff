@@ -2,8 +2,8 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
-  
+ 
+  ![](https://komarev.com/ghpvc/?username=tyzmle&label=☣︎&color=586f63)
 
 <div align="center">
 
