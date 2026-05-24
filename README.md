@@ -3,7 +3,7 @@
 <div align="center">
 
  
-  ![](https://komarev.com/ghpvc/?username=tyzmle&label=☣︎&color=586f63)
+  ![](https://komarev.com/ghpvc/?username=tyzmle&label=☣︎&color=918f74)
 
 <div align="center">
 
