@@ -38,7 +38,7 @@ ${\textsf{\color{#ecd9cc}go sign my stuff yo!!!!!!!!!}}$
   
 
 
-<img width="569" height="166" alt="Screenshot_29-5-2026_201436_pony town" src="https://github.com/user-attachments/assets/d8655b53-54b9-4599-bddd-cfffd2ca08c6" />
+
 
 
 
