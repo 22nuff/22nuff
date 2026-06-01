@@ -13,7 +13,7 @@
 
 
 ‎
-${\textsf{\color{#ecd9cc}go sign my stuff yo!!!!!!!!!}}$
+${\textsf{\color{#fffff}happy pride month!!!!!!!!!}}$
 
 
 ㅤㅤㅤㅤ
