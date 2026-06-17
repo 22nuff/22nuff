@@ -13,7 +13,7 @@
 
 
 ‎
-${\textsf{\color{#fffff}sign my shit!!!!!!!!!}}$
+${\textsf{\color{#fffff}im not tcc, i don't condone people who idolize real perps.}}$
 
 
 ㅤㅤㅤㅤ
