@@ -13,7 +13,7 @@
 
 
 ‎
-${\textsf{\color{#fffff}im not tcc, i don't condone people who idolize real perps.}}$
+${\textsf{\color{#6a3a19}"It was a seven.".}}$
 
 
 ㅤㅤㅤㅤ
@@ -22,10 +22,10 @@ ${\textsf{\color{#fffff}im not tcc, i don't condone people who idolize real perp
 ㅤ 
 
 
+<img width="540" height="215" alt="D5788E83-40DB-412A-9A87-EDB86BEC82DF" src="https://github.com/user-attachments/assets/2053020a-8c58-4c41-8147-c493028a9c52" />
 
 
-‎ <img width="430" alt="Untitled198_20260625184023-removebg-preview" src="https://github.com/user-attachments/assets/fddc1de8-de2f-41a3-91ee-08441257a1b7" />
-
+‎
 
 
 
