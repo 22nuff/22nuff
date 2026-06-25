@@ -24,7 +24,8 @@ ${\textsf{\color{#fffff}im not tcc, i don't condone people who idolize real perp
 
 
 
-‎ ‎ ‎<img height="430" alt="Untitled167_20260523091101" src="https://github.com/user-attachments/assets/0863a32c-dbf8-4fea-a610-c5d3cf25a5d1" />
+‎ <img width="430" alt="Untitled198_20260625184023-removebg-preview" src="https://github.com/user-attachments/assets/fddc1de8-de2f-41a3-91ee-08441257a1b7" />
+
 
 
 
